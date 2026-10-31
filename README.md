@@ -4,3 +4,8 @@
 <img width="463" height="278" alt="Screenshot_11-10-2026_19831_pony town" src="https://github.com/user-attachments/assets/2ab04a42-b18e-45fd-a2f8-779f7d4591c9" />
 
 Ok what is this????  bye😭😭
+
+
+<img width="2266" height="1289" alt="IMG_2910" src="https://github.com/user-attachments/assets/30d67e41-6a76-4a69-b8d9-6d1ec6de3385" />
+
+ this was something alright😭😭
