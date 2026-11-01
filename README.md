@@ -9,3 +9,7 @@ Ok what is this????  bye😭😭
 <img width="2266" height="1289" alt="IMG_2910" src="https://github.com/user-attachments/assets/30d67e41-6a76-4a69-b8d9-6d1ec6de3385" />
 
  this was something alright😭😭
+
+<img width="5712" height="4284" alt="IMG_0813" src="https://github.com/user-attachments/assets/be6bd852-085b-4b0c-8494-f70ccaa1adb5" />
+
+Another Dino glitch or smth idk
